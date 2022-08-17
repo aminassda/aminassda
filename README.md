@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aminassda
+- 👋 Hi, I’m @Amina zafar-1998
 - 👀 I’m interested in MDE.
 
 
